@@ -1,3 +1,5 @@
 # Candidate-cyber-attack-may-2025
 Homogeneous systèms may prevent using mean field games.
 may need more than 1 full year zttacks o' the sale target dystem.
+maximizes more than one domain cyber attacks.
+https://www.google.com/search?q=one+domain+cyber+warfare&client=ms-android-xiaomi-terr1-rso2&sca_esv=2d840e117ec3fd11&biw=360&bih=697&udm=36&sxsrf=AHTn8zoR-5utPgrSTYO8LOP_ARS47Tak6A%3A1747023948572&ei=THghaPTlIsGHkdUPramMkQ0&oq=one+domain+cyber+warfare&gs_lp=EhNtb2JpbGUtZ3dzLW1vZGVsZXNzGgIYAiIYb25lIGRvbWFpbiBjeWJlciB3YXJmYXJlMgUQIRifBTIFECEYnwUyBRAhGJ8FMgUQIRifBTIFECEYnwUyBRAhGJ8FMgUQIRifBTIFECEYnwVI8WZQlAhYwmVwBHgAkAEAmAGFAaABmh-qAQUyOS4xM7gBA8gBAPgBAZgCI6ACkBzCAggQABiwAxjvBcICBRAhGKABwgIKEAAYgAQYFBiHAsICBRAAGIAEwgIIEAAYgAQYiwPCAgsQABiABBixAxiDAcICChAAGIAEGEMYigXCAggQABiABBixA8ICBBAAGAPCAg0QABiABBixAxhDGIoFwgIHEAAYgAQYCsICBhAAGBYYHsICCBAAGBYYChgewgIHEAAYgAQYE8ICCBAAGBMYFhgewgIHECEYoAEYCpgDAIgGAZAGBZIHBTEyLjIzoAf80QGyBwQ4LjIzuAfEGw&sclient=mobile-gws-modeless
